@@ -24,7 +24,11 @@ Aim for Combos: Clear multiple lines at once for bonus points.
 Why You Should Download Block Blast Today
 Available on iOS, Android, and even web browsers, Block Blast is free to play with no downloads required for some versions. It’s a fantastic way to sharpen your mind while unwinding. However, beware of its addictive nature—many players report losing hours chasing that next big score!
 More: 
+
 https://www.youtube.com/@BlockBlast-k5u
+
 https://www.facebook.com/people/Block-Blast/61573910495377/?mibextid=JRoKGi
+
 https://www.pinterest.com/blockblast66/
+
 https://www.tiktok.com/@maddoxbennie
