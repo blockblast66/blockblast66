@@ -25,10 +25,10 @@ Why You Should Download Block Blast Today
 Available on iOS, Android, and even web browsers, Block Blast is free to play with no downloads required for some versions. It’s a fantastic way to sharpen your mind while unwinding. However, beware of its addictive nature—many players report losing hours chasing that next big score!
 More: 
 
-https://www.youtube.com/@BlockBlast-k5u
+<a href="https://blockblast-game.io/">Block Blast</a>
 
-https://www.facebook.com/people/Block-Blast/61573910495377/?mibextid=JRoKGi
+<a href="https://www.youtube.com/@BlockBlast-k5u">Youtube</a>
 
-https://www.pinterest.com/blockblast66/
+<a href="https://www.pinterest.com/blockblast66/">Pinterest</a>
 
-https://www.tiktok.com/@maddoxbennie
+<a href="https://www.tiktok.com/@maddoxbennie">Tik Tok</a>
